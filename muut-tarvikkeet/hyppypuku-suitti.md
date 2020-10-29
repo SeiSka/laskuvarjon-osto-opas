@@ -35,6 +35,8 @@ Valmistajia \(Suomessa jonkin verran eteen tulleita\) löytyy ainakin seuraavast
   * Italialainen, lähinnä FS-suitteihin keskittynyt valmistaja.
 * **Intrudair**
   * Unkarilainen suittivalmistaja.
+* **Pro-Fly Suits**
+  * Slovenialainen suittivalmistaja. Viime vuosina kasvattanut suosiotaan varsinkin tuoreiden hyppääjien keskuudessa. Halpa ja hintaansa nähden hyvä.
 
 Ja niin. Mainitsemisen arvoinen on ehkä myös Pakistanissa toimiva suittivalmistaja \(tämän hetkistä tehtaan nimeä en saanut selville\). Jos haluaa todella halpaa, niin katse kannattaa suunnata sinne. Muita — yleensä hyppääjien arvostamia — parametrejä niissä suiteissa ei kuitenkaan ole.
 
